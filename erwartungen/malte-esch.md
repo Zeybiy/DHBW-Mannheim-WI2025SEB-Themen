@@ -1,0 +1,2 @@
+- Softwareengineering mit so wenig Vibe Coding wie möglich
+- Entwicklung mit modernen Tech-Stacks
