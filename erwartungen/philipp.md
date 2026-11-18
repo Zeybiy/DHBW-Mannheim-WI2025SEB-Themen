@@ -1,0 +1,1 @@
+Ich erwarte, einen praxisnahen Überblick über aktuelle Themen wie KI, Cloud und IT-Sicherheit zu bekommen und zu verstehen, wie diese Unternehmen und unsere zukünftige Arbeit verändern.
