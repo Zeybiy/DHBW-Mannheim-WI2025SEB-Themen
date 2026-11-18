@@ -1,0 +1,1 @@
+spannende Ergebnisse am Ende, kreative Pitches, neue Konzepte für effizientere Entwicklung, interessante Funfacts
